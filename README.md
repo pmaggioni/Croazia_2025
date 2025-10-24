@@ -113,4 +113,3 @@ Ogni viaggio lascia un segno, ma quelli fatti insieme diventano leggenda.
 **Glignoranti Ladomenica – Since 2007**  
 *Ride hard. Laugh louder. Live free.* 🤘  
 
-![Glignoranti Ladomenica](glignorantiladomenica_Occhi.PNG)
